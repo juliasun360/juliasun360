@@ -1,5 +1,7 @@
 
 - Hello! My name is Julia Sun and you're on my Github page!
+
+- I am majoring in Interactive Art & Technology whilst pursuing a Business minor at Simon Fraser University!
  
 - I love a good colour, shape, or texture and anything design.
  
