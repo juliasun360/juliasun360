@@ -10,4 +10,4 @@
 - This is how you can contact me.
   - https://www.linkedin.com/in/juliamsun/
   - sunjulia442@gmail.com
-  - (778) 268 3508
+  - 1+ (778)-268-3508
